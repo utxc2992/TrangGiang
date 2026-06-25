@@ -1,3 +1,4 @@
+27
 As the sun goes down, the sky rises, deep to the absolute height;
 26
 A long river, a wide sky, a lonely wharf.
