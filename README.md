@@ -1,3 +1,4 @@
+Where is the distant village's fading afternoon market sound?
 27
 As the sun goes down, the sky rises, deep to the absolute height;
 26
