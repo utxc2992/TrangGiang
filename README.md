@@ -1,3 +1,4 @@
+A bird tilts its small wings: the evening shadow falls.
 11
 The homeland yearning surges with the distant waves,
 10
