@@ -1,3 +1,4 @@
+No bridge to evoke a touch of intimate warmth,
 38
 Silently, the green bank meets the golden shore.
 37
