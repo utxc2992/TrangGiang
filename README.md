@@ -1,3 +1,4 @@
+13
 Layer upon layer, high clouds pile up into silver mountains,
 12
 A bird tilts its small wings: the evening shadow falls.
