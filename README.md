@@ -1,3 +1,4 @@
+A long river, a wide sky, a lonely wharf.
 25
 Waves ripple on the endless river, sadness overlapping,
 24
