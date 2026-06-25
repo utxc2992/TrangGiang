@@ -1,3 +1,4 @@
+Waves ripple on the endless river, sadness overlapping,
 8
 The boat drifts down the current, side by side with the water.
 7
