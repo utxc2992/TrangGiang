@@ -1,3 +1,4 @@
+The boat drifts down the current, side by side with the water.
 31
 The boat returns as the water recedes, grief scattering a hundred ways;
 30
