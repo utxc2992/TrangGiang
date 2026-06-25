@@ -1,3 +1,4 @@
+20
 A single branch of dry wood
 19
 deep to the absolute height
