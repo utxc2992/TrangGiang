@@ -1,3 +1,4 @@
+Silently, the green bank meets the golden shore.
 37
 Layer upon layer, high clouds pile up into silver mountains,
 36
