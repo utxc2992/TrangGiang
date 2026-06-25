@@ -1,3 +1,4 @@
+The homeland yearning surges with the distant waves,
 10
 Even without the twilight smoke, I still miss home.
 9
