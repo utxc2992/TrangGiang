@@ -1,3 +1,4 @@
+48
 deep to the absolute height
 47
 A single branch of dry wood
