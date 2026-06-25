@@ -1,3 +1,4 @@
+47
 A single branch of dry wood
 46
 sadness overlapping
