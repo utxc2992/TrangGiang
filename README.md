@@ -1,3 +1,4 @@
+6
 A single branch of dry wood wanders through a maze of streams.
 5
 Sparse on the grass mounds, a gentle breeze blows,
