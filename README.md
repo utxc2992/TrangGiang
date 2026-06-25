@@ -1,3 +1,4 @@
+Even without the twilight smoke, I still miss home.
 9
 Waves ripple on the endless river, sadness overlapping,
 8
